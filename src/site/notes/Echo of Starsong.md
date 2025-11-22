@@ -98,7 +98,7 @@ Over the intercom, she directs [[Jun Lee\|Jun]] to take the unconscious [[Remi D
 
 "Please forgive me." Eda says it as the cargo bay ejects from the ship, charting a path back towards [[Thousand Peaks\|Thousand Peaks]] and safety. Eda, now released from her duty as captain, sets course for [[Phoenix\|Phoenix]].
 #### Chapter 5
-Jun and Remi return to [[East Ocean\|East Ocean]]. They would keep searching for [[Phoenix\|Phoenix]], but never found it. 
+Jun and Remi return to [[East Ocean\|East Ocean]]. They would keep searching for [[Phoenix\|Phoenix]], but never found it. Most of the residents of [[Thousand Peaks\|Thousand Peaks]] disappeared when the second [[Lumen War\|Lumen War]] began. [[Doctor Rushell\|Doctor Rushell]] and [[Bones\|Bones]] are never heard from again. Eventually, the time to return to [[Phoenix\|Phoenix]] came. [[Jun Lee\|Jun]], now an old man, returns to the [[Lumen Caves\|lumen cave]]. He finds [[Edalune Grant\|Eda]] there in the form of a Lumen wisp. Following it, he discovers the field of flowers the grew around the crashed [[Red Chamber\|Red Chamber]]. At last, [[Myria Helius\|Helius]] and [[Myria Terra\|Terra]] are able to reunite, when the flowers are always in full bloom.
 
 #EchoOfStarsong #OPUS 
 ### Notable Characters
