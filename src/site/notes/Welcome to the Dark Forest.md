@@ -8,4 +8,4 @@ Hubs for knowledge include links to [[Universal themes\|Universal themes]] and o
 ### Video Topics
 - [[OPUS\|OPUS]]
 - [[The Alters Overview\|The Alters Overview]]
-- [[Stella of the End - Draft 1\|Stella of the End - Draft 1]]
+- [[Stella of the End\|Stella of the End]]
