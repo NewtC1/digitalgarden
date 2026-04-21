@@ -19,3 +19,5 @@ Remember that universal themes are the core of a story. Everything should wrap b
 [[Desire\|Desire]]
 [[Dreams\|Dreams]]
 [[Money\|Money]]
+[[Heroes\|Heroes]]
+[[Humanity\|Humanity]]
