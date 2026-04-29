@@ -7,3 +7,4 @@ Stella of the End is a visual novel published by [[Visual Arts/Key\|Visual Arts/
 ## Scripts
 - [[Stella of the End - Draft 1\|Stella of the End - Draft 1]]
 - [[Stella of the End - Draft 2\|Stella of the End - Draft 2]]
+- [[Stella of the End - Draft 3\|Stella of the End - Draft 3]]
